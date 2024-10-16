@@ -7,7 +7,6 @@
 4) ./install_rosetta
 
 
+![Gemini_Generated_Image_vrbut4vrbut4vrbu](https://github.com/user-attachments/assets/e57e0c4a-b269-48d8-b25c-ac1e873a10ac)
 
 
-
-![Gemini_Generated_Image_vrbut4vrbut4vrbu](https://github.com/user-attachments/assets/ad9ad152-e21b-4c49-bb47-11732da50090)
